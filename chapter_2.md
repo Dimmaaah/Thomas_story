@@ -1,0 +1,1 @@
+And all of the sudden. He slipped and hit his head. everything changed.. for some reason everybody around him spoke dutch. he started to think in dutch.. hij vroeg zichzelf af waarom hij deze schoenen aan heeft.. ze zaten veelste strak. hij trok zijn schoenen uit. wat een opluchting.
